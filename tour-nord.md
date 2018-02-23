@@ -1,3 +1,5 @@
+# TOUR NORD MADAGASCAR
+
 ## Jour 1: Nosy Be / Parc de l'Ankarana / Diégo Suarez
 
 Départ de l'hôtel à 8h. Le trajet commence par l'arrivée via
@@ -45,9 +47,3 @@ Cela peut vous couper le souffle et vous pourriez vous demander
 si vous êtes encore sur terre!
 Déjeuner à Mahamasina ! Transfert à Nosy-Be !
 
-## Tarifs
-Tarif avec hotel 3***: 690 €/personne ( 2 personnes) et 640€/personne (4 personne)
-Tarif avec hotel categorie moyen : 590€/personne (2 pers) et 540€/personne (4 personnes)
-
-Le prix inclu : Hébergement , pension complète pendant le circuit, transfert (voiture climatisée , bateau, 4x4 ou minibus, chauffeur et guide, droits d'entrée des parcs, une bouteille d'eau par jour et par personne.
-Le prix exclu : Les boissons, vols internationnaux, dépense individuel, pourboire.
